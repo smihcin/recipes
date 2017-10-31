@@ -1,5 +1,5 @@
 Ingredients 
 Instructions
-add salt
+add lemon
 stir
 mix
